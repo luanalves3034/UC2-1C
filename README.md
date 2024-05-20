@@ -18,4 +18,10 @@ Atividade 1: Trello
 Atividade do Canva
 - [Grupo](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
+ Atividade do Miro
+- [individual](https://miro.com/app/board/uXjVKFrXBhE=/?share_link_id=401939526470)
+
+
+
+
 
