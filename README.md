@@ -15,11 +15,16 @@ Atividade 1: Trello
 - [Grupo](https://trello.com/invite/userworkspace95089227/ATTI30b8d5dd6c88242c9824e1f6036986fe84246E2A)
 - [Individual](https://trello.com/invite/b/dcxhardp/ATTIfc73ad94fa12cf7e53d4327f883733f710AD5206/projeto-pessoal)
 
-Atividade do Canva
+Atividade 2: Canva
 - [Grupo](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
- Atividade do Miro
+ Atividade 3: Miro 
 - [individual](https://miro.com/app/board/uXjVKFrXBhE=/?share_link_id=401939526470)
+
+Atividade 4: Docs
+- [individual](https://docs.google.com/document/d/13FEtSuPlv13vu3Ezp_QonokNpORIRQNwgjcCSa1fK64/edit?usp=sharing)
+
+  
 
 
 
